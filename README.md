@@ -1,1 +1,0 @@
-# Kanyarat-102t3tdf
